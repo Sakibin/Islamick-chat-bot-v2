@@ -85,12 +85,12 @@ jobs:
 
 ### <br> ❖ FOR SUPPORT ❖
 
-**`➩ HII DEARS FRIENDS IF YOU WANT ANY HELP SO YOU CAN CONTACT↘︎ WITH ME WIA WHATSAPP ITS ME CYBER-RAJIB࿐➺`**
+**`➩ HII DEARS FRIENDS IF YOU WANT ANY HELP SO YOU CAN CONTACT↘︎ WITH ME WIA WHATSAPP ITS ME CYBER-BOT-SUPPORT-ADMIN࿐➺`**
 
 -------
 
 <p align="center">
-  <a href="https://wa.me/+8801859551262?text=*ᴀssᴀʟᴀᴍᴜ ᴀʟᴀɪᴋᴜᴍ+ʀᴀᴊɪʙ+ɪ+ɴᴇᴇᴅ+ʜᴇʟᴘ!.+ʙʀᴇᴀᴛʜᴇʀ!!*" target="_blank">
+  <a href="https://wa.me/+8801882333052?text=*ᴀssᴀʟᴀᴍᴜ ᴀʟᴀɪᴋᴜᴍ+ʀᴀᴊɪʙ+ɪ+ɴᴇᴇᴅ+ʜᴇʟᴘ!.+ʙʀᴇᴀᴛʜᴇʀ!!*" target="_blank">
     <img alt="whatsapp" src="https://img.shields.io/badge/ Whatsapp -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 
 -----------    
